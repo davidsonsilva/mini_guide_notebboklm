@@ -83,9 +83,17 @@ Qual a diferença entre o investidor defensivo e o empreendedor?
 
 Como se aplica a fórmula de Graham na prática?
 
-Como se aplica a fórmula de Graham na prática?
+O que é o Net Net Working Capital de Graham?
 
-Como se aplica a fórmula de Graham na prática?
+Quais os riscos de investir em empresas 'líquido do líquido'?
+
+O que são os '7 Critérios Defensivos' para escolher ações?
+
+O que é o valor intrínseco de uma ação?
+
+Como aplicar a Fórmula de Graham em empresas brasileiras?
+
+Qual a relação entre diversificação e margem de segurança?
 
 # Mapa Mental
 
